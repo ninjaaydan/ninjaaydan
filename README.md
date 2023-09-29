@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @ninjaaydan!
+- 👀 I’m interested in 3D Design and Modeling.
+- 🌱 I’m currently learning Mechanical CAD Design Elective in high school, its very painful.
+- 💞️ I’m looking to collaborate on new plugins and themes for Blockbench!
+- 📫 How to reach me:
+- Email: ninjaaydan@gmail.com
+- Secondary Email: ayadnadad@gmail.com
+- Phone: (609) - 878 - 8094
